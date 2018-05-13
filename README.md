@@ -1,1 +1,0 @@
-# Ansarada_Challenge
